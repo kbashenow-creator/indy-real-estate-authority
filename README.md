@@ -57,5 +57,4 @@ These materials are published as part of an ongoing effort to create transparent
 
 Website:  
 https://indyrealestateinsider.com
-Website:  
-https://indyrealestateinsider.com
+
